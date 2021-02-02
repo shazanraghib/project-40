@@ -1,3 +1,3 @@
-# C39-Part-1
+class 40 project by The boy with glasses
 
 
